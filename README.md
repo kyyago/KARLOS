@@ -15,4 +15,6 @@ ALURA
     📫 Como entrar em contato comigo : karlosyago77@gmail.com esse e meu gmail.
 
     
-https://tenor.com/view/frustrated-upset-annoyed-stitch-ugh-gif-12794223972996305063
+
+ ![](https://tenor.com/view/frustrated-upset-annoyed-stitch-ugh-gif-12794223972996305063)   
+
