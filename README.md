@@ -16,5 +16,5 @@ ALURA
 
     
 
- ![](https://tenor.com/view/frustrated-upset-annoyed-stitch-ugh-gif-12794223972996305063)   
+ ![](https://media.tenor.com/sY426q87UKcAAAAM/frustrated-upset.gif)   
 
